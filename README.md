@@ -1,0 +1,2 @@
+# mggmxm
+Daily digest notes
